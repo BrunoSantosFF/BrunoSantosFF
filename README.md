@@ -1,4 +1,4 @@
-**_About for me_**: 
+**_About me_**: 
 
 -- Hello, my name is Bruno Santos Fernandes<br/>
 -- I'm graduated in industrial automation technician<br/>
